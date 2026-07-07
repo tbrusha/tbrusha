@@ -1,10 +1,10 @@
 <p align="center">
 is that your fucking selfship?
   <br>
-  <img src="https://file.garden/ZZB6aq9EyXOLuQsA/IMG_0334.gif" style="width:251px;display:block;vertical-align:top;margin:5px auto;text-align:center;" alt="IMG_0334.gif">
+  <img src="https://file.garden/ZZB6aq9EyXOLuQsA/IMG_0564.gif" style="width:251px;display:block;vertical-align:top;margin:5px auto;text-align:center;" alt="IMG_0334.gif">
   <br>
 minor — artist
-  <br>FUCK you and your Pony Towns
+  <br>SCREW you and your Pony Towns
 </p>
 
 <p align="center">
