@@ -1,8 +1,4 @@
-<p align="center">
-no I dont play or support DW anymore I just like brusha
-  <br>
-———————————————————————
-  <br>"...is that your fucking selfship?"
+<br>"...is that your fucking selfship?"
   <br>
   <img src="https://file.garden/ZZB6aq9EyXOLuQsA/IMG_0564.gif" style="width:251px;display:block;vertical-align:top;margin:5px auto;text-align:center;" alt="IMG_0334.gif">
   <br>
